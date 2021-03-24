@@ -1,5 +1,3 @@
-# Sean McCartney
-DevOps Leader  
 mccartney dot sa at gmail dot com
 
 100 USD / hr  
