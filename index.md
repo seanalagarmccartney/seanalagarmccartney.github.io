@@ -6,4 +6,6 @@
 
 100 USD / hr 
 
-please inquire at mccartney dot sa at gmail dot com
+please inquire at mccartney dot sa at gmail dot com  
+
+[LinkedIn](https://www.linkedin.com/in/sean-alagar-mccartney-503/ "Check out my past experience!")
